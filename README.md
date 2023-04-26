@@ -1,3 +1,3 @@
 here to create.
-machine learning, A.I and mobile app development are my main areas of interest.
+machine learning, A.I and mobile application and Web development are my main areas of interest.
 thank you for reading.
